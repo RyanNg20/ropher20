@@ -1,1 +1,1 @@
-Hi my name is Ryan!
+Hi my Name is Ryan, Im a compsci major who probably wants to work as an app developer/making games. I enjoy playing games and watching anime ! Favorite animes right now are jujutsu kaisen, attack on titan, No Game No Life. (Notable mentions include Sabikui Bisco, made in abyss, high school of the elite, FMA brotherhood, etc..) Games I play Right now are Genshin Impact and League Of Legends. Hopefully I will quit my addiction sometime soon.
